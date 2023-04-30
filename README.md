@@ -1,1 +1,1 @@
-## Oi! Tudo bem? Seja bem vindo! <3
+## Oi! Seja bem vindo! <3
